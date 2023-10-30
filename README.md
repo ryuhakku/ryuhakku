@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @ryuhakku
+- 👀 I’m interested in Singing, Drawing, Gaming!
+- 🌱 I’m currently learning Piano, and Japanese!
+- 💞️ I speak English, Tagalog !
+- 📫 How to reach me, Messenger, Number!
+- 🎀 I like people with great humor, personality and good music taste!
+- 💌 I enjoy listening to music, and watching vlogs and movies!
+- 💐 My favourite genre of movies, videos, games etc is horror! and in music I enjoy Jazz and oldschool!
+- 
